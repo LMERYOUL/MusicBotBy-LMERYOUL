@@ -1,2 +1,0 @@
-# MusicBotBy-LMERYOUL
-BOT 24/7
